@@ -1,1 +1,1 @@
-# -Eye_for_blind_Capstone_Project
+# Eye_for_blind_Capstone_Project
